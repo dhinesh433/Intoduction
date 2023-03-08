@@ -5,6 +5,6 @@ I am currently pursuing my BE in RGCE.
 I like to watch movies.
 My team name is "Team1".
 My fellow teammates are:-
-   - Sebastian
+   - Sebastin
    - Sagayaraj
    - Ranjith Kumar 
